@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @imadiaz01
 - 👀 I’m interested in physics
-- 🌱 I’m currently learning how to make money
+- 🌱 I’m currently learning how to conquer the cosmos
 - 💞️ I’m looking to collaborate on building the biggest cultural creation
 - 📫 How to reach me @imadiaz01
 
